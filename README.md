@@ -1,0 +1,2 @@
+# HamDell
+نسخه فارسی Tinder
